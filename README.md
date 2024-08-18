@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently a student major in Computing Science at the University of Alberta, with a minor in Biological Science<br><br>🔭 My interest lies in the Bioinformatics field, and AI Innovations in Biology<br><br>📝 I regularly write articles on https://www.linkedin.com/in/khoinguyenxuan/<br><br>📫 How to reach me xuankhoi06.nguyen@gmail.com<br><br>⚡ Fun fact: I really enjoy watching Anime! My top 3 favs are Naruto, Attack on Titan, and Sword Art Online.
+🌱 I’m currently a student major in Computing Science at the University of Alberta, with a minor in Biological Science<br><br>🔭 My interest lies in the Bioinformatics field, and AI Innovations in Biology<br><br>📝 I regularly write articles on https://www.linkedin.com/in/khoinguyenxuan/<br><br>📫 How to reach me xuankhoi06.nguyen@gmail.com<br><br>⚡ Fun fact: I really enjoy watching Anime! My top 3 favs are Naruto, Attack on Titan, and Black Jack.
 
 
 ## 🌐 Socials:
